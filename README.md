@@ -1,0 +1,2 @@
+# Smart-Note-for-APPLE-WATCH
+NOTE APP FOR APPLE WATCH
